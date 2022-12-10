@@ -1,0 +1,1 @@
+# pazylbekov_maksat
